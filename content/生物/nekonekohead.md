@@ -1,4 +1,4 @@
-本词条描述的不是[[人物/猫猫头nekonekohead|猫猫头nekonekohead]]。
+本词条描述的不是[[nekonekoheade|nekonekoheade]]。
 猫猫头（nekonekohead）是一种生物（拉丁：）
 最基础的猫猫头分类依据[[脸部伸缩]]能力分为[[大猫猫头]]和[[小猫猫头]]。
 猫猫头已受本项目证实存在的具体种类有：
